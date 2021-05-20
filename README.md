@@ -1,5 +1,5 @@
 #ListLove
-https://demngayyeu.github.io/love-list
+https://demngayyeu.github.io/list
 
 Danh sách web tình yêu❤
 
